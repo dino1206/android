@@ -1,3 +1,4 @@
 # android
 practice
-please give advice
+→ please give advice
+→THX!
